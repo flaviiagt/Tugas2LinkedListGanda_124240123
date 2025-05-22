@@ -1,0 +1,1 @@
+# Tugas2LinkedListGanda_124240123
